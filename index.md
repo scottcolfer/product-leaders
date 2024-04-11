@@ -1,4 +1,6 @@
-Product leaders need safe spaces to share and learn from one another. But we don’t have many of these spaces. Public sector product leaders are especially poorly served, with a lot of stuff aimed at commercial sector. I took a punt and shared a LinkedIn post inviting folks to join this new thing, figuring we might get 10-20 interested. We quickly got to 50+ folks and it continues to grow. Get in touch if you'd like to join! [Scott Colfer](http://scottcolfer.com), April 2024
+Product leaders need safe spaces to share and learn from one another. But we don’t have many of these spaces. Public sector product leaders are especially poorly served, with a lot of stuff aimed at commercial sector. I took a punt and shared a LinkedIn post inviting folks to join this new thing, figuring we might get 10-20 interested. We quickly got to 50+ folks and it continues to grow. Get in touch if you'd like to join! 
+
+[Scott Colfer](http://scottcolfer.com), April 2024
 
 # Why
 
