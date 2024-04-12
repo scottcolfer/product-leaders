@@ -10,13 +10,17 @@ I’ve hit the public sector trifecta of Central Govt, Local Govt and Charity pr
 
 Anyone wanting to join with a title of Lead Product Manager, Principle Product Manager, Head of Product, Assistant Director of Product, Director of Product, or Chief Product Offier is immediately approved. For others we review their application. We don’t want to be purist around roles - we do want this to be a safe space for people with similar challenges and opportunities. Our priority is for Leads and up to have a safe space to be vulnerable away from folks they manage.
 
+<!-- ## How to join
+Add some details on how to join.
+-->
+
 # Who
 
 We are a mix of product leaders from Central Government, Local Government, Higher Education, Healthcare, and Charities. I’m facilitating the community to get it off the ground. I’m doing this as me, Scott Colfer. [Herd Consulting](https://herd.consulting/), where I work, is sponsoring this by allowing me to do it ‘on the clock’. And have agreed there is nothing expected in return, it’s simply a way of accomplishing our social mission to support the professions of product management and business analysis. 
 
 # How 
 
-We use [WhatsApp Comunity])https://www.whatsapp.com/community/}. WhatsApp’s worked best of the social media platforms for professional stuff in the past so took a gamble it’d be the same here. So far, so good. WhatsApp Community lets us have a single main community. And loads of topic-based chats people can choose to be in or not.
+We use [WhatsApp Comunity])[https://www.whatsapp.com/community/]. WhatsApp’s worked best of the social media platforms for professional stuff in the past so took a gamble it’d be the same here. So far, so good. WhatsApp Community lets us have a single main community. And loads of topic-based chats people can choose to be in or not.
 
 # What
 
