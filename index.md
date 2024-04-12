@@ -1,4 +1,4 @@
-Product leaders need safe spaces to share and learn from one another. But we don’t have many of these spaces. Public sector product leaders are especially poorly served, with a lot of stuff aimed at commercial sector. I took a punt and shared a LinkedIn post inviting folks to join this new thing, figuring we might get 10-20 interested. We quickly got to 50+ folks and it continues to grow. Get in touch if you'd like to join! 
+Product leaders need safe spaces to share and learn from one another. But we don’t have many of these spaces. Public sector product leaders are especially poorly served, with a lot of stuff aimed at commercial sector. I took a punt and shared a LinkedIn post inviting folks to join this new thing, figuring we might get 10-20 interested. We quickly got to 50+ folks and it continues to grow. Register here if you'd like to join!
 
 [Scott Colfer](http://scottcolfer.com), April 2024
 
@@ -20,7 +20,7 @@ We are a mix of product leaders from Central Government, Local Government, Highe
 
 # How 
 
-We use [WhatsApp Comunity])[https://www.whatsapp.com/community/]. WhatsApp’s worked best of the social media platforms for professional stuff in the past so took a gamble it’d be the same here. So far, so good. WhatsApp Community lets us have a single main community. And loads of topic-based chats people can choose to be in or not.
+We use [WhatsApp Comunity](https://www.whatsapp.com/community/). WhatsApp’s worked best of the social media platforms for professional stuff in the past so took a gamble it’d be the same here. So far, so good. WhatsApp Community lets us have a single main community. And loads of topic-based chats people can choose to be in or not.
 
 # What
 
