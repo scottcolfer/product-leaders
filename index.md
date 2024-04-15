@@ -10,7 +10,7 @@ I’ve hit the public sector trifecta of Central Govt, Local Govt and Charity pr
 
 Anyone wanting to join with a title of Lead Product Manager, Principle Product Manager, Head of Product, Assistant Director of Product, Director of Product, or Chief Product Offier is immediately approved. For others we review their application. We don’t want to be purist around roles - we do want this to be a safe space for people with similar challenges and opportunities. Our priority is for Leads and up to have a safe space to be vulnerable away from folks they manage.
 
-Register [here](https://forms.gle/VLWA68ovMXHWA7AM6) if you'd like to join!
+**Register [here](https://forms.gle/VLWA68ovMXHWA7AM6) if you'd like to join!**
 
 # Who
 
