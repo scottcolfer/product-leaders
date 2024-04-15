@@ -1,4 +1,4 @@
-Product leaders need safe spaces to share and learn from one another. But we don’t have many of these spaces. Public sector product leaders are especially poorly served, with a lot of stuff aimed at commercial sector. I took a punt and shared a LinkedIn post inviting folks to join this new thing, figuring we might get 10-20 interested. We quickly got to 50+ folks and it continues to grow. Register here if you'd like to join!
+Product leaders need safe spaces to share and learn from one another. But we don’t have many of these spaces. Public sector product leaders are especially poorly served, with a lot of stuff aimed at commercial sector. I took a punt and shared a LinkedIn post inviting folks to join this new thing, figuring we might get 10-20 interested. We quickly got to 50+ folks and it continues to grow. Register [here](https://forms.gle/VLWA68ovMXHWA7AM6) if you'd like to join!
 
 [Scott Colfer](http://scottcolfer.com), April 2024
 
@@ -10,9 +10,7 @@ I’ve hit the public sector trifecta of Central Govt, Local Govt and Charity pr
 
 Anyone wanting to join with a title of Lead Product Manager, Principle Product Manager, Head of Product, Assistant Director of Product, Director of Product, or Chief Product Offier is immediately approved. For others we review their application. We don’t want to be purist around roles - we do want this to be a safe space for people with similar challenges and opportunities. Our priority is for Leads and up to have a safe space to be vulnerable away from folks they manage.
 
-<!-- ## How to join
-Add some details on how to join.
--->
+Register [here](https://forms.gle/VLWA68ovMXHWA7AM6) if you'd like to join!
 
 # Who
 
