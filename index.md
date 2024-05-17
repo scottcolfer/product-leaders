@@ -8,6 +8,6 @@ Anyone wanting to join with a title of Lead Product Manager, Principle Product M
 
 # The Team
 
-Product Leaders Commnity is founded and led by [Scott Colfer](https://www.linkedin.com/in/scottcolfer/). 
+Product Leaders Community is founded and led by [Scott Colfer](https://www.linkedin.com/in/scottcolfer/). 
 
 [Casey Taylor](https://www.linkedin.com/in/casey-taylor2000/) is Community Manager.
