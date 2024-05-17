@@ -6,9 +6,8 @@ We are a mix of over 80 product leaders from Central Government, Local Governmen
 
 Anyone wanting to join with a title of Lead Product Manager, Principle Product Manager, Head of Product, Assistant Director of Product, Director of Product, or Chief Product Offier is immediately approved. For others we review their application. We don’t want to be purist around roles - we do want this to be a safe space for people with similar challenges and opportunities. Our priority is for Leads and up to have a safe space to be vulnerable away from folks they manage.
 
-[Scott Colfer](http://scottcolfer.com), April 2024
-
 # The Team
 
 Product Leaders Commnity is founded and led by [Scott Colfer](https://www.linkedin.com/in/scottcolfer/). 
+
 [Casey Taylor](https://www.linkedin.com/in/casey-taylor2000/) is Community Manager.
